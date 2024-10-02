@@ -1,1 +1,1 @@
-![](https://file.garden/ZvcIwE3DAlyVYn09/Untitled632_20241001204944.png)
+![](https://file.garden/ZvcIwE3DAlyVYn09/Untitled632_20241001205548.jpeg)
