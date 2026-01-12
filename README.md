@@ -7,3 +7,5 @@ who the [censored] does github girlkissing think she is WHO ARE YOU!!! NOONE KNO
 https://rentry.co/wheelertozier + https://rentry.co/-fearstreet1994 
 
 https://rentry.co/ttadano + https://rentry.co/HAlDA
+
+you big into cleradin? dont even joke lad
