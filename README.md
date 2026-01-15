@@ -2,6 +2,8 @@
 
 whisper 2 int ur always free to sit with me! friends can take inspo from ponies i dont rlly care!!! :p if i follow you then yiou are COOL i hope dont lclip me if im following the devil
 
+some if not alot of my rentries look better on deskto p
+
 leave hate comments on my atabook i  loev them
 
 https://rentry.co/wheelertozier + https://rentry.co/-fearstreet1994 
