@@ -1,5 +1,5 @@
 <p align="center">
-ponytown bop
+icon by @ getjizzy_
 <p align="center">
  https://rentry.co/-fearstreet1994 🦴
 
