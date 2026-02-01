@@ -1,5 +1,5 @@
 <p align="center">
-icon by @ getjizzy_
+ew ew ew ew ew
 <p align="center">
  https://rentry.co/-fearstreet1994 🦴
 
