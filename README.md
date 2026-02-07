@@ -10,5 +10,10 @@
  <img width="460" height="460" src="https://file.garden/ZvcIwE3DAlyVYn09/Untitled98_20260124152955.png"> 
 <p align="center">
 ‎ ‎           me @scottpiIgrim @boyskissing @eddisode @vysters @puplove @itadei @cursedtides and @frankensteln
+ 
  <p align="center">
+  
+<img width="460" height="460" src="https://files.catbox.moe/mlyhly.jpeg">
 
+<p align="center">
+@puplove @vysters and me (might draw later never)
