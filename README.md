@@ -16,7 +16,7 @@ https://rentry.co/mikeIwheeler + https://rentry.co/tozierpilled
  
 <p align="center">
  
- <img width="200" height="200" src="https://file.garden/ZvcIwE3DAlyVYn09/Untitled153_20260207231132.png">
+ <img width="200" height="200" src="https://i.ibb.co/ymVkC6LL/Untitled152-20260214161322.png">
 
  <p align="center">
   @puplove @vysters and me
