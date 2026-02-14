@@ -1,6 +1,9 @@
 
 <p align="center">
  https://rentry.co/-fearstreet1994
+<p align="center">
+https://rentry.co/mikeIwheeler + https://rentry.co/tozierpilled
+IM GEEKING 
 
 <p align="center">
  
