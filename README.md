@@ -1,6 +1,6 @@
 <p align="center">
  
-![](https://i.ibb.co/8hLqD4v/IMG-5304.jpg)
+ <img width="400" height="400" src="https://i.ibb.co/8hLqD4v/IMG-5304.jpg">
 <p align="center">
 https://rentry.co/mikeIwheeler + https://rentry.co/tozierpilled
 
