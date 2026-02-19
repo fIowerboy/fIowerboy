@@ -1,6 +1,6 @@
 <p align="center">
  
- <img width="400" height="400" src="https://i.ibb.co/b91zbn6/IMG-7443.jpg">
+ <img width="400" height="400" src="https://files.catbox.moe/wwc5o0.jpeg">
 <p align="center">
  me and cat (she owns me beware) 
 
