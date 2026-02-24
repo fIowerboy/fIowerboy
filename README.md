@@ -17,3 +17,7 @@ https://rentry.co/mikeIwheeler + https://rentry.co/tozierpilled
  <p align="center">
   
  <img width="400" height="400" src="https://files.catbox.moe/xb3do3.png">
+
+02:30 PM[euthanize me] whispers: 🌼boi . on dni. 10%
+02:29 PM[euthanize me] whispers: vstrs
+02:30 PM[euthanize me] whispers: oftb.
