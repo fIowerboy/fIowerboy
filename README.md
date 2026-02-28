@@ -1,12 +1,13 @@
-<p align="center">
-@ludwlg ACCEPT YOUR COUNTRYHUMAN FATE!
 
 <p align="center">
- that martin bias that dont play about mike wheeler
+
+![](https://i.postimg.cc/RZcL6znd/image0.gif)
+
  
  <p align="center">
   
- <img width="400" height="400" src="https://files.catbox.moe/wwc5o0.jpeg">
+ <img width="400" height="400" src="https://i.postimg.cc/G2b7hm77/Untitled195-20260228040617.png">
+ 
 <p align="center">
  me and cat 
 
@@ -18,11 +19,4 @@ https://rentry.co/mikeIwheeler + https://rentry.co/tozierpilled
   
  <img width="400" height="400" src="https://files.catbox.moe/xb3do3.png">
 
-02:30 PM[euthanize me] whispers: 🌼boi . on dni. 10%
-02:29 PM[euthanize me] whispers: vstrs
-02:30 PM[euthanize me] whispers: oftb.
-
-
- [. ᴠᴇɴᴋᴍᴀɴ ʟᴜᴄᴀs | ɪɴᴛ] Max: ‘Stop stalking me Stalker!’ Lucas: ‘ I’m a stalker for our love baby, watching you like a hawk is what I do to keep you and I together /RIZZ
-
- IM SO FUCKING MADDDDDDDDDDDDDDD
+02:30 PM[euthanize me] whispers: 🌼boi . on dni. 10% (wik when me and orph c+h in the gas room)
