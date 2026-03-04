@@ -1,3 +1,5 @@
+the most flowery boy you'll ever meet
+
 i luv [piggy](https://rentry.co/piggygc)
 
 [rentry](https://rentry.co/timetraveler) [ata](https://mike.atabook.org/) [gift](https://rentry.co/mikeIwheeler)
@@ -7,4 +9,4 @@ i luv [piggy](https://rentry.co/piggygc)
  me and cat 
 
 
-[euthanize me] whispers: 🌼boi . on dni. 10% 
+[euthanize me] whispers: 🌼boi . on dni. 10% (wik+orph ppt masters)
