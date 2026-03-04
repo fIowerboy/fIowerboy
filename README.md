@@ -1,12 +1,8 @@
-the most flowery boy you'll ever meet
-
-i luv [piggy](https://rentry.co/piggygc)
-
-[rentry](https://rentry.co/timetraveler) [ata](https://mike.atabook.org/) [gift](https://rentry.co/mikeIwheeler)
-
- <img width="400" height="400" src="https://i.ibb.co/BHRQdfF2/IMG-6426.jpg">
- 
- me and cat 
 
 
-[euthanize me] whispers: 🌼boi . on dni. 10% (wik+orph ppt masters)
+
+[rentry](https://rentry.co/timetraveler) [ata](https://mike.atabook.org/) [gift](https://rentry.co/mikeIwheeler) [bsfs](https://rentry.co/piggygc)
+
+ <img width="400" height="400" src="https://i.ibb.co/Mk8M2Zts/IMG-6445.jpg">
+ the most flowery boy you'll ever meet
+
