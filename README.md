@@ -7,4 +7,4 @@ i luv [piggy](https://rentry.co/piggygc)
  me and cat 
 
 
-02:30 PM[euthanize me] whispers: 🌼boi . on dni. 10% (wik when me and orph c+h in the gas room)
+[euthanize me] whispers: 🌼boi . on dni. 10% 
