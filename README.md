@@ -2,7 +2,7 @@ i luv [piggy](https://rentry.co/piggygc)
 
 [rentry](https://rentry.co/timetraveler) [ata](https://mike.atabook.org/)
 
- <img width="400" height="400" src="https://i.postimg.cc/G2b7hm77/Untitled195-20260228040617.png">
+ <img width="400" height="400" src="https://i.ibb.co/BHRQdfF2/IMG-6426.jpg">
  
  me and cat 
 
