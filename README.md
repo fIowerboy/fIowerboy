@@ -1,7 +1,7 @@
 
 sign [ata](https://mike.atabook.org/) ![](https://64.media.tumblr.com/e663668ee112562fcda2c4c3e98739c5/a098f0615d32d80d-a0/s75x75_c1/e79db74d72d638dca438ab0c74c880b9dfd9fc37.gifv) [ext info](https://rentry.co/timetraveler)
 
-<img src="https://i.postimg.cc/28fjvSSK/84CAB298-17BA-42CA-A2D0-54D3642416C0.gif" width="250" height="150">
+<img src="https://i.postimg.cc/Vsdp0f5G/2B012BB5-097F-4F3A-9F9E-8E5797A08467.gif" width="400" height="180">
 
 
 
