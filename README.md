@@ -7,7 +7,7 @@ sign [ata](https://mike.atabook.org/) ![](https://64.media.tumblr.com/e663668ee1
 
  the most flowery boy you'll ever meet ![](https://64.media.tumblr.com/5eb4e7a34abd5af5677d2fe007a85b7b/fb99b9e869db4899-bb/s75x75_c1/5c075567a20e17865079a649fb95c70bc81ad0d9.gifv)
 
- ![](https://i.postimg.cc/gJ8rcZZF/IMG-9395.jpg)
+<img src="https://i.postimg.cc/gJ8rcZZF/IMG-9395.jpg" width="300" height="150">
 
 - [pt players](https://github.com/pt-players) as a pretty pony
 - [omegatown](https://rentry.co/omegatown) as an alpha
