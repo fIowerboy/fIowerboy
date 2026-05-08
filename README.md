@@ -5,10 +5,4 @@ the most flowery boy you'll ever meet ![](https://64.media.tumblr.com/5eb4e7a34a
 
 <img src="https://i.postimg.cc/Px1rnvL8/66611785-A4B4-4BC3-8F1C-B86C5697B443.gif" width="300" height="150">
 
-[ata](https://mike.atabook.org/) ![](https://64.media.tumblr.com/e663668ee112562fcda2c4c3e98739c5/a098f0615d32d80d-a0/s75x75_c1/e79db74d72d638dca438ab0c74c880b9dfd9fc37.gifv) [rentry](https://rentry.co/timetraveler) [straw](https://drumset.straw.page/)ㅤ
 
-ㅤ 
-
-[pt players](https://github.com/pt-players) + [omegatown](https://rentry.co/omegatown) 
-
-ㅤㅤㅤㅤ
