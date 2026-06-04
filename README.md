@@ -1,5 +1,4 @@
-![](https://i.postimg.cc/LXTWWGq9/IMG-9710.gif)
+![](https://i.postimg.cc/kgCmwcz4/IMG-0682.gif)
 
-
-[info](https://guns.lol/wheeler) 
+[info](https://rentry.co/timetraveler) 
        [ata](https://mike.atabook.org)
