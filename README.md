@@ -2,6 +2,6 @@
 
 
 
-<img src="https://i.postimg.cc/xdytpkPb/Untitled500-20260716153708.png" alt="Sample Image" width="300" height="300">
+<img src="https://i.postimg.cc/BvHHyF5r/image.png" alt="Sample Image" width="250" height="200">
 
  
