@@ -1,7 +1,7 @@
 <div align="center">
 <p align="center">
 
-<img src="https://i.postimg.cc/LX9nY7tv/792B76C3-8707-40D9-B667-8017F49409E2.gif" alt="My Image" width="300" height="200">
+<img src="https://i.postimg.cc/SKSmYS5Y/IMG-5654.jpg" alt="My Image" width="250" height="300">
 
 
 [ata](https://mike.atabook.org) [guns](https://guns.lol/dsaf)
